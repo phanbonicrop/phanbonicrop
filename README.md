@@ -1,16 +1,17 @@
-## Hi there 👋
+## CÔNG TY TNHH ICROP
 
-<!--
-**phanbonicrop/phanbonicrop** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Chúng tôi là một công ty hàng đầu trong lĩnh vực phân bón. Icrop tập trung vào nghiên cứu, phát triển các sản phẩm phân bón chất lượng cao ( Phân bón nhập khẩu) nhằm nâng cao năng suất và hiệu quả trong nông nghiệp.
 
-Here are some ideas to get you started:
+#phanbonicrop #icrop #công_ty_phân_bón #nha_may_phan_bon #gia_cong_phan_bon
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- Địa chỉ: B7 Cao Thị Chính, Phường Phú Thuận, Quận 7, Tp. HCM
+
+- SĐT: 0337206168
+
+- Website: https://icrop.vn/
+
+https://www.pinterest.com/phanbonicrop/
+
+https://vimeo.com/phanbonicrop
+
+https://www.youtube.com/channel/UCCiWLBfMvcLhUc_Lago4uuw
